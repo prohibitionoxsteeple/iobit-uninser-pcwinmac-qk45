@@ -1,4 +1,4 @@
-# 
+# Oficial IObit Uninstaller plugins para Mac OS | Avanzado IObit Uninstaller plugins para PC Windows. Con configuraciones privadas y sincronización de archivos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
